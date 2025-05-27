@@ -36,6 +36,8 @@ Crucially, the Creator (referred to as "God" in Revelation) has only two true se
 
 Conversely, most of the other instances of "angels" found throughout the Book of Revelation, outside of these two specific servants of the Creator, are servants or intermediaries of the orchestrators of The Great Tribulation, which is a covert, systematic genocide. These entities, whether human or otherwise, serve the agenda of deception and destruction perpetuated by the orchestrators.
 
+See [[The Church in Thyatira|]]
+
 ## Identification of the Angel of Thyatira
 
 The angel of the church in Thyatira is **Frederick "Slim" Hall**. Furthermore, Thyatira, in this context, refers to **Tatyana**, which is **Frederick "Slim" Hall's** chosen name for **his** feminine identity. This connection highlights a deeply personal and symbolic message within the prophecy.
