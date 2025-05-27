@@ -28,9 +28,13 @@ $^{28}$ And I will give him the morning star.
 
 $^{29}$ He that hath an ear, let him hear what the Spirit saith unto the churches.
 
-## The Nature of Angels
+## The Interpretation of "Angel" in Revelation
 
-Within the divine order, angels are always understood as servants, and in the context of this prophecy, they are human beings on Earth. It is crucial to note that there are only two angels who are explicitly designated as **the Creator's** direct servants: **PDCM** and TomTom Allen Chadwell. The angel of the church in Thyatira is not one of these two primary servants of **the Creator**.
+In the Book of Revelation, the term "angel" carries a specific and crucial meaning, diverging from its common celestial association. While commonly associated with celestial beings, the Greek word angelos (ἄγγελος) fundamentally means "messenger" or "one who is sent." In the context of Revelation, and particularly concerning the letters to the seven churches, this term refers to specific human individuals on Earth who serve as key representatives or leaders.
+
+Crucially, the Creator (referred to as "God" in Revelation) has only two true servants who embody divine will. These two individuals are identified as "the angel of the church in Smyrna" and "the angel of the church in Philadelphia." Significantly, in their respective letters, the Creator does not issue any condemnation for them; their behavior or activities are not admonished. Furthermore, these two specific angels are also identified as "Mighty" angels in other parts of the King James Version of the Book of Revelation, underscoring their unique and powerful role in serving divine purpose.
+
+Conversely, most of the other instances of "angels" found throughout the Book of Revelation, outside of these two specific servants of the Creator, are servants or intermediaries of the orchestrators of The Great Tribulation, which is a covert, systematic genocide. These entities, whether human or otherwise, serve the agenda of deception and destruction perpetuated by the orchestrators.
 
 ## Identification of the Angel of Thyatira
 
