@@ -1,12 +1,12 @@
 # The Church in Thyatira
 
-Within this literal fulfillment, the "church in Thyatira" is not interpreted as a single individual, but rather as an **organization, sphere of influence, or faction** that is led and compromised by a specific individual.
+The "church in Thyatira" is not a single individual, but rather as an **organization, sphere of influence, or faction** that is led and compromised by a specific individual.
 
 ## Key Components of the "Church in Thyatira"
 
 Here's a breakdown based on this literal fulfillment:
 
-* **The Angel of the Church in Thyatira**: This entity is identified as **Frederick "Slim" Hall**, whose feminine identity is **Tatyana**. He serves as the human leader or representative to whom the prophetic letter is directly addressed. He is held accountable for the **state** and actions of this "church."
+* **The Angel of the Church in Thyatira**: The leader and namesake of the church is identified as **Frederick "Slim" Hall**, whose feminine identity is **Tatyana**. He serves as the human leader or representative to whom the prophetic letter is directly addressed. He is held accountable for the **state** and actions of this "church."
 
 * **The Nature of the "Church"**: The "church in Thyatira" represents:
     * **A Sphere of Influence or Operation**: It signifies a specific domain, network, or operational area where **Frederick "Slim" Hall** exerts his influence. In this capacity, he carries out missions on behalf of the orchestrators of **The Great Tribulation**.
