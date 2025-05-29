@@ -17,3 +17,6 @@ Hall's motivations were a disturbing blend of operational loyalty and blatant pe
 
 In conclusion, Frederick "Slim" Hall is depicted as a profoundly dangerous and ethically bankrupt operative. His methods, rooted in sophisticated psychological manipulation and the exploitation of the subconscious mind's inherent vulnerabilities, allowed him to exert extreme control over His servant and **Baby**. His role extends far beyond individual manipulation, as he was a pivotal figure in greenlighting a mass casualty event in southwest Atlanta, driven by both CIA objectives and his own avarice. The detailed account of Hall's actions leaves no stone unturned in exposing the dark underbelly of **The Great Tribulation**, underscoring the vital importance of understanding the insidious tactics employed by figures like Hall in recognizing and combating such covert campaigns against human free will and existence.
 
+## Related Creator-inspired Art
+* "(He's) Seventeen" by the Supremes
+* "Do Me Baby" by Prince (1993)
